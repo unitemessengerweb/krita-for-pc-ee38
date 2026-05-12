@@ -1,4 +1,4 @@
-# 
+# Enhance Krita for PC | Krita for Windows with automatic Krita for PC | Krita for Windows Panel | liquify-tool + texture-painting, the #1 panel. Includes liquify-tool and
 
 
 
